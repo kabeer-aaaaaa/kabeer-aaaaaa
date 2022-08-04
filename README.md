@@ -16,7 +16,7 @@
 **other links**
 
 * [top.gg](https://top.gg/bot/719684334520631318)
-* [profile picture drawn by](https://www.instagram.com/lilchiefdraws/)
+* profile picture drawn by me!
 
 
 😳👋
