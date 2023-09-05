@@ -15,4 +15,4 @@
 * profile picture drawn by me!
 
 
-😳👋
+👋
