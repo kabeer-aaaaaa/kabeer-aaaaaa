@@ -5,13 +5,9 @@
 * I currently live in [canada](https://www.google.com/maps/place/Canada/@54.723166,-113.7191257,4z/data=!3m1!4b1!4m5!3m4!1s0x4b0d03d337cc6ad9:0x9968b72aa2438fa5!8m2!3d56.130366!4d-106.346771) 🍁
 * pronouns: he/him
 
-**how to reach me**
-
-* If you need to reach me about anything join my [discord server](https://discord.gg/vefKwUqR)
-
 **what im working on**
 
-* I am currently working on [flare bot](https://dsc.gg/flarebot) which is a moderation/fun discord bot
+* I am not working on [flare bot](https://dsc.gg/flarebot) which is a moderation/fun discord bot
 
 **other links**
 
